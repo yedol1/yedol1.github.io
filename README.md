@@ -1,1 +1,1 @@
-# yedol1.github.io
+# 10_2pang 의 포트폴리오
